@@ -8,3 +8,6 @@ participantes del grupo
 - Simon Correa Rios 1033179644 - Ingeniería en sistemas
 
 - Ana Maria Granada Rodas 1000758426 - Ingeniería en sistemas
+
+video entrega 2: https://youtu.be/8T6WfzT-oGQ
+
