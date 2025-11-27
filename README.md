@@ -10,4 +10,5 @@ participantes del grupo
 - Ana Maria Granada Rodas 1000758426 - Ingeniería en sistemas
 
 video entrega 2: https://youtu.be/5Scjk_T9xGk
+video entrega 3: https://youtu.be/ofgS5ouRh4U
 
